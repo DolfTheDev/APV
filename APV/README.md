@@ -87,7 +87,7 @@ Het afk staan als politie of het niet komen naar meldingen zal bestraft worden
 
 **Artikel 29: Combat gedrag**
 
-Combat gedrag is ten alle tijden verboden hieronder valt een combat pack en onderanderen een croshair
+Combat gedrag is ten alle tijden verboden hieronder valt een combat pack en onderanderen een croshair. het afmaken van iemand die handen omhoog doet is niet toegestaan.
 
 **Artkikel 30: Offroaden met voeruigen**
 
